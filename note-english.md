@@ -155,6 +155,11 @@
     - They put an embargo on imports of [steel:thep]
 13. **Embark**/imbak/:
     - The flight crew embarked and the planne took off.
+14. **Emergency(adj/n)**/i'mer jần si/ Khẩn cấp
+    - The emergency action is to protect the eviroment.
+15. **Emphasize(v)**/em fơ sis/
+    - His speech emphasized the importance of atracting industry to the town
+16. **Employ(V)**/im ploi/ Thuê mướn
 
 ## F
 
@@ -176,6 +181,15 @@
     - Her confidence has been slowly eroded[xói mòn] by repeated failures.
 9. **fair(v,n,adj)**: công bằng, phiên chợ.
     - The lawyer working on the case were skilled, efficient and fair.
+10. **Fall(n/v)**: sư rơi/rơi, giảm
+    - House prices began to fall rapidly.
+11. **Fare**/fe3/ tiền vé
+    - full (hafl) fares
+    - one way fares
+    - round trip (return) fares
+12. **Fault(n)**/fo:lt/
+    - Why should I say sorry when it's not my fault?
+13. **Favor**/fei ver/ Su uu dai/uu dai
 
 ## U
 
