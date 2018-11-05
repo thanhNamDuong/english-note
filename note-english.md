@@ -191,6 +191,36 @@
     - Why should I say sorry when it's not my fault?
 13. **Favor**/fei ver/ Su uu dai/uu dai
 
+## G
+
+1. **Gain**: lời, lợi, lấy được, dành được.
+2. **Glad**: Vui mừng
+    - She was glad when the meeting was over.
+3. **Goodwill(n)**: Tím nhiệm, thiện chí
+    - given goodwill on both sides, I am sure we can reach an agreement.
+4. **Grace**: Sự gian hạn
+5. **Grade**:
+6. **Gradual**: dần dần, từ từ.
+    - Recovery form the disease is very gradual.
+7. **Grand**:
+    - The wedding was a very grand occasion.
+8. **Grant**: Sự trợ cấp
+    - He has been awarded a research grant
+    - a govement grant
+    - a investment grant
+    - the grant of license
+9. **Grant**: Đồng ý, chấp nhận
+10. **Grateful**: Biết ơn
+
+## H
+
+1. **Haggle**/haegl/ Mặc cả, thương thảo
+    - Many car dealers will give you a sizeable discount if you are prepared to haggle.
+2. **Halt(V)**/holt/ Tạm dừng
+    - Nationwid, mail delivery was hatted by strike
+3. **Hammer(v): Nhồi nhét, làm ra
+    - His attorneys hammered at the idea tha the police department was incompetent.
+
 ## U
 
 - until further notice:
