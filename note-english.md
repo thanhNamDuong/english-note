@@ -394,3 +394,26 @@
 13. **right side up**
 14. **run away with**
 15. **twirl**: to turn or spin around and around.
+
+### Lesson 5: Greate Vacation of All Time
+
+#### Nws
+
+1. **agency**: a business that provide a particular service.
+2. **camel**:
+3. **campout**: an occasion when people go camping together.
+4. **congralutions**
+5. **cozy**: small, comfortable, and warm
+6. **deserve**: đáng xứng đáng.
+7. **getaway**: a short vacation.
+8. **latest**
+9. **least**
+10. **on fire**(expression)
+11. **pricey**(adj)/prai si/ costing a lot of money đắt tiền.
+12. **sink**: to go down below the surface water.
+13. **smoke**:
+
+#### sentences
+
+1. I like travel that is *cozy* and romantic but still exciting.
+2. The Mountain Getaway is good for you. It's a little pricey.
