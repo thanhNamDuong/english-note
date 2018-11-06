@@ -217,9 +217,17 @@
 1. **Haggle**/haegl/ Mặc cả, thương thảo
     - Many car dealers will give you a sizeable discount if you are prepared to haggle.
 2. **Halt(V)**/holt/ Tạm dừng
-    - Nationwid, mail delivery was hatted by strike
-3. **Hammer(v): Nhồi nhét, làm ra
+    - Nationwie, mail delivery was hatted by strike
+3. **Hammer**(v): Nhồi nhét, làm ra
     - His attorneys hammered at the idea tha the police department was incompetent.
+4. **Handover**
+    - The handover of power is going to happen
+5. **Harbor**/ha: bờ/
+    - Several boats lay at anchor in the harbor.
+6. **Harden**: củng cố
+    - The incident[viec xay ra] hardened her resolve to leave the company.
+7. **Harm**(v/n) sự gây hại/ gây hại
+    - The accident could have been much worse, luckily no harm was done.
 
 ## U
 
